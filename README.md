@@ -1,5 +1,5 @@
 # USP1
 Hello world1 bau bau
 
-trqbva da go schupq. :D
-banicaaaaaaaaa
+trqbva da go chupq.zashto :D
+banicaaaaaa
